@@ -3,7 +3,7 @@
 **`Segurança da Informação | Analista de Sistemas`**
 
 
-Sou Thiago, tenho 22 anos e resido em Porto Alegre/RS. Atualmente, curso Segurança da Informação e busco me aperfeiçoar cada vez mais na área. Trabalho na área de qualidade de software, mas também já atuei com suporte e infraestrutura, passando por empresas variadas no setor de TI, como rede de supermercados, startup de tecnologia e atuando em clientes como Sicredi e Vivo, por meio da Tivit e da Spread Tecnologia.
+Sou Thiago, tenho 23 anos. Atualmente, curso Segurança da Informação e busco me aperfeiçoar cada vez mais na área. Trabalho na área de qualidade de software, mas também já atuei com suporte e infraestrutura, passando por empresas variadas no setor de TI, como rede de supermercados, startup de tecnologia e atuando em clientes como Sicredi e Vivo, por meio da Tivit e da Spread Tecnologia.
 
 
 
